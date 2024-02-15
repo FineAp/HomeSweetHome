@@ -46,3 +46,6 @@ I invite players to experience the fun and emotional impact of 'Home Sweet Home'
 KOREA BLOG: https://blog.naver.com/dlgidgkr
 
 BUILD LINK: https://drive.google.com/file/d/1YiYGw_NTOxAGVMk9YzwbanzS62eKMwvs/view?usp=drive_link
+
+![스크린샷 2024-02-15 104918](https://github.com/FineAp/HomeSweetHome/assets/143973266/c5d1df42-a4de-4e16-b636-94c62ba6c3fe)
+
